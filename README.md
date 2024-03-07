@@ -1,0 +1,1 @@
+for bradford, so youll always have it no matter what bro- keep you head up and just know that things are gonna get better. where you are IS NOT forever- i can promise you that bro. watch youtubes video "danica patrick joe dispenza consciousness" see you soon bro 🖤
